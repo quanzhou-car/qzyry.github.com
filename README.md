@@ -1,1 +1,0 @@
-# qzyry.github.com
